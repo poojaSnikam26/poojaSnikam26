@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @poojaSnikam26
-- 👀 I’m interested in ... 
+- 👀 I’m interested in ... learning New Technologies
 - 🌱 I’m currently learning ... MCA From "Pratibha Institute of Bussiness Management Chincwad Pune ,Maharashtra"
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...  poojanikam2626@gmail.com
